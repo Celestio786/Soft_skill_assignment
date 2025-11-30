@@ -1,1 +1,0 @@
-# Soft_skill_assignment
